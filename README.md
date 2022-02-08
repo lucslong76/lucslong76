@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @lucslong76
+- 👀 I’m interested in learning how to code and program. Anything that will help me form a career.
+- 🌱 I’m currently learning how to code in Python.
+- 💞️ I’m looking to collaborate on anything that will improve my ability to code.
+- 📫 How to reach me @ lucaslong76@gmail.com or on reddit @ u/LJL76.
